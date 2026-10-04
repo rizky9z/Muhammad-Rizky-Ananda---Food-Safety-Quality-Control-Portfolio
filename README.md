@@ -1,1 +1,0 @@
-# Muhammad-Rizky-Ananda---Food-Safety-Quality-Control-Portfolio
